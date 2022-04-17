@@ -56,3 +56,21 @@
 
 ### In conclusion, religion is important to societies and people’s lives. Good religion can be key to a good society and a thriving economy.
 
+## Defense
+
+### Having a defense system is just as important as everything else in society. Without a successful defense for a civilization, raids can be very common. 
+
+### Our civilization will utilize cavalry, foot soldiers, longbow people, armor, and spears. These are all necessary to protect us. The weapons we will make are longbows, catapults, swords, armor, and spears. These weapons will be made from steel, iron, wood, string, leather, stone, bronze, and feathers from birds. 
+
+### You may expect spears to be thin, pointy sticks, but no, our spears are made of hard palm or oak trees that are cut down. We chose these trees because they stay firm in the hard conditions they live in, such as sand storms. Our spears will all be 5 feet so our men can attack with distance. Spears have more leverage, they are nimble, and are better against swords or far range attacks, they pack more of a punch on the thrust, and most importantly, they have more reach from throwing. Our metal points are made from the best of the best blacksmiths. 
+
+
+### We will make use of war hammers as well. The blunt piece of the hammer is used to smash armor while the pointy end is for stabbing. Our other weapons will be mostly useless against armor so having these hammers are very important in combat.
+
+### A hauberk is very important when fighting. Hauberk protects your body while you are fighting so you don’t get hurt. The armor is made out of steel or iron plates. It’s designed to absorb blows from enemies' weapons. Its metal linked together to deflect an opponent's hit. 
+
+### One of our several important defenses is our foot soldiers. Foot soldiers are soldiers who fight at battles or wars on foot instead of horses or other vehicles. They protect the mounted soldiers by staying in front of them, fending off any enemies who tried to attack. Foot soldiers, like all the other soldiers in our civilization, wear hauberks, which is armor that is essential for the soldiers’ protection. It was also listed in the paragraph above.
+
+### Cavalry was necessary for the past and promoted many useful strategies like ambushes. The cavalry will have fast horses and soldiers riding them. The soldiers will carry bows, war hammers, spears, or swords and wear hauberks.
+
+### In conclusion, we believe that these weapons will help us protect ourselves and our citizens in many different ways. They will help us defend our territory and keep it safe from invaders or rival civilizations, and will also help us invade other civilizations in contrast.
