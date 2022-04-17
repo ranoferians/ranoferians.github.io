@@ -28,5 +28,12 @@
 
 ### In conclusion, the jobs of our civilization are necessary for our civilization to thrive and prosper. Each job has its place in society and is all needed for many different purposes.
 
+## Goverment and Laws
 
+### We need to decide what type of government and our citizens will follow Democracy.  We find it fair if we all vote for a person we think is suitable to speak for us, and our Leaders are chosen by a vote, votes needed for a leader will be 3 to 5.
 
+### Laws are important in a government, so it's mandatory to have them. Our ten laws are if you kill someone purposely, you will receive, in return, a death sentence. Our second law will be: if you kill someone accidentally, you will get a 7-year jail sentence on good behavior. It will be longer if you do not act properly. Third, if you vandalize or steal someone else's property, you will lose your index, thumb, and middle finger on one hand. Do it again, you lose the fingers on the other hand. Fourth, if you’re a doctor and someone is in pain, you have to help them if they need it. If you purposely don’t help, you will get 20% off of your daily salary. Our 5th law will be: if you illegally immigrate without an invitation, you will have 5 years in our jail, and after your time, you will be sent back. Our sixth law will be: if you threaten someone verbally, you will have 5 hours of community service. If you do something physically, you will have 15 hours of community service. Our 7th law will be: if you damage someone's property, you will pay for it and do community service for 100 minutes. Our eighth law is: if you’re selling illegal objects, you will jump into a river with both arms tied and blindfolded. Our ninth law will be: if you own a slave, then you will become an underpaid worker until death. Lastly, if you do not follow orders from the leaders of our civilization, you will be either kicked out or underfed, but it depends on what they didn't do.
+ 
+### To showcase our laws, we will have a statue that lists all the laws, like the Hammurabi's Statue of Codes. We will enforce the law by making sure people will obey the law with palace guards, arrests, and sentences.
+
+### In conclusion, we try to keep everything and everyone peaceful and fair among each other. If one breaks a law, there will be consequences.  
