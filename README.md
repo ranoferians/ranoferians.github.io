@@ -36,4 +36,10 @@
  
 ### To showcase our laws, we will have a statue that lists all the laws, like the Hammurabi's Statue of Codes. We will enforce the law by making sure people will obey the law with palace guards, arrests, and sentences.
 
-### In conclusion, we try to keep everything and everyone peaceful and fair among each other. If one breaks a law, there will be consequences.  
+### In conclusion, we try to keep everything and everyone peaceful and fair among each other. If one breaks a law, there will be consequences. 
+
+## Social Classes
+
+### Social classes are important to be organized, so we have three tiers. Our top tier are Nobles. They are employed as priests, governors, and War Generals. It's necessary for the top tiers' age to be above 24 years old. We chose these jobs to be the main leaders because people listen to them. Our middle tier are Middletons. They are employed as merchants, farmers, artisans. For the middle tier, it's required for them to be above 16+ years old of age. We chose these jobs as the middle tier because they have a reasonable salary. Our last Tier, the poorest tier, are the lil baby people. They are either unemployed or have jobs that are underpaid, that don’t get appreciation. They can be of any age.  We chose this because they are not very appreciated because people don’t find them useful for the kingdom. It’ll be unfair if people can’t change their classes so we will allow them to change. But only if you do good, and your salary gets higher or you rank up your skill over time. 
+
+### In conclusion, our social classes are organized, so everyone could have a place in our civilization.  We will allow people to change classes and be able to experience the best life they could ever have. 
